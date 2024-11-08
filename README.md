@@ -1,0 +1,1 @@
+# Personal-Trainer-IA-com-Boas-Pr-ticas-de-Prompt
