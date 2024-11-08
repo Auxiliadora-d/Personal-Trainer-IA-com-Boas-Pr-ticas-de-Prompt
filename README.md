@@ -1,1 +1,1 @@
-# Personal-Trainer-IA-com-Boas-Pr-ticas-de-Prompt
+# Personal Trainer IA com Boas Práticas de Prompt
