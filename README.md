@@ -52,3 +52,5 @@
 
 **Exercício Cardio Controlado**:
 15 minutos de caminhada em ritmo confortável (se possível, com inclinação leve).
+
+CONTINUA ...
